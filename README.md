@@ -1,0 +1,1 @@
+https://jegansecurity.blogspot.com/
